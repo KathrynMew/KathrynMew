@@ -1,10 +1,10 @@
-☀️ Hi, I’m @KathrynMew
+![6636d37ba22a391c6353b1436a81f656](https://github.com/KathrynMew/KathrynMew/assets/143840870/cdc0dd3b-ff76-4dd2-92a5-4dd031f1cfda)
+
+☀️ Hi, I’m Kate.
 
 💻 I’m interested in artificial intelligence, virtual reality, and game development.
 
 🕷️ University of Richmond Class of 2024
-
-🗣️ I’m looking to collaborate on ???
 
 📱 **How to reach me:**
 - [Instagram](https://instagram.com/kathryn_thatsme.w)
